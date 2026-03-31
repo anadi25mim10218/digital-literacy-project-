@@ -31,5 +31,8 @@ As part of my coursework, I have:
 
 ## Connect with Me on LinkedIn :
 https://www.linkedin.com/in/anadi-khare-23b06b379?utm_source=share_via&utm_content=profile&utm_medium=member_android
- i also analysed a case study for my project 
+ 
+
+
+i also analysed a case study for my project 
 i tried to complete my project with full honesty and with motive to learn something new 
